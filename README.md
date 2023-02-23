@@ -2,4 +2,4 @@
 Hello people
 
 
-clic to visit website: https://walter505-png.github.io/walterZaigoep2023/
+clic here to visit website: https://walter505-png.github.io/walterZaigoep2023/
